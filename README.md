@@ -1,1 +1,7 @@
-# test-repo
+#Halo Guys  
+> Nama: Aurelio Killian Lexi Verrill  
+> NRP: 5025211126  
+
+Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Vitae suscipit tellus mauris a. Ultrices mi tempus imperdiet nulla. Felis donec et odio pellentesque. Tristique et egestas quis ipsum suspendisse ultrices. Commodo sed egestas egestas fringilla phasellus faucibus. Magna etiam tempor orci eu lobortis elementum nibh tellus molestie. Egestas purus viverra accumsan in nisl nisi scelerisque eu. A erat nam at lectus urna duis. Sed felis eget velit aliquet sagittis. Magnis dis parturient montes nascetur ridiculus. Ut venenatis tellus in metus vulputate eu scelerisque. Egestas erat imperdiet sed euismod nisi porta lorem. Hac habitasse platea dictumst vestibulum rhoncus est pellentesque elit ullamcorper. Nunc lobortis mattis aliquam faucibus purus in massa. Laoreet suspendisse interdum consectetur libero.
+
+Porttitor massa id neque aliquam vestibulum morbi blandit cursus risus. Viverra maecenas accumsan lacus vel facilisis volutpat est velit. Ultricies mi eget mauris pharetra et. Lacus vel facilisis volutpat est velit egestas dui id ornare. Gravida rutrum quisque non tellus orci ac auctor. Massa massa ultricies mi quis hendrerit dolor magna eget est. Amet volutpat consequat mauris nunc congue. Id aliquet risus feugiat in ante. Aliquam etiam erat velit scelerisque in dictum non consectetur. Mi in nulla posuere sollicitudin aliquam ultrices sagittis orci. Feugiat in fermentum posuere urna. Hac habitasse platea dictumst quisque sagittis. Congue eu consequat ac felis donec et.
